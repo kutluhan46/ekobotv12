@@ -1,1 +1,6 @@
-# ekobotv12
+Asreaper Ekonomi Botu
+--------------------------
+
+
+Youtube : Asreaper
+---------------------
